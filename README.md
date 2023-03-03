@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @carlosPachec0
-- 👀 I’m interested in ... technology, science, art, excercise
+- 👀 I’m interested in ... technology, science, art, workout
 - 🌱 I’m currently learning ...about programming
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... charliecardenas62@gmail.com
